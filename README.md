@@ -16,3 +16,6 @@ What's up with me?
     ■I hope to work with teams both locally and globally.
     
     ■Looking forward to international internships.
+
+Get in touch with me 
+Twitter: https://twitter.com/_Glowreeyah?s=09
